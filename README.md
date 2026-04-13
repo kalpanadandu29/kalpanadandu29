@@ -5,7 +5,7 @@
 
 
 - 📫 How to reach me
--  Mail id: **dandukalpanachawla03@gmail.com**
+-  Mail id: **dkalpana2906@gmail.com**
 - Linkedin: **www.linkedin.com/in/kalpana-chawla-dandu**
 
 <h3 align="left">Connect with me:</h3>
